@@ -1,3 +1,3 @@
 # EU SOU
 
-Eu sou, I am.
+Eu Sou, I Am, Yo Soy.
